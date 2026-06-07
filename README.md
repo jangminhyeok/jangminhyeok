@@ -29,7 +29,7 @@ You can view my resume below:
 
 [click here to download my resume](Resume.pdf).
 
-※ Updated at 2025-11-09
+※ Updated at 2026-06-01
 
 ---
 
